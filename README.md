@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Siker1m
 - 👀 I’m interested in getting an A for that project
 - 🌱 I’m currently finishing school (inshallah)
-- 💞️ I’m looking to collaborate on a school project
+- 💞️ I’m looking to just finally finish school
 - 📫 Reach me via E-Mail: aixolot@gmail.com
 
 <!---
